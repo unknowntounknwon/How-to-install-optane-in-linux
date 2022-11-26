@@ -1,2 +1,2 @@
 # How-to-install-optane-in-linux
-nothing just wondering 
+hello guys my name is Aryan , and today we are installing you know you know the title
